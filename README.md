@@ -1,4 +1,4 @@
-Hi, I am PhiVault the founder of Duck Corporation.
+Hi, I am PhiVault the founder of Duck.
 I am here to demonstrate you how some large problems need simple solutions.
 
 You Should Must CheckOut My First Upload Project - The Phivault-System-Jammer
